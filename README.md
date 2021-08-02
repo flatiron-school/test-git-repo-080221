@@ -19,3 +19,11 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Lindsey
 
+### Dan
+
+### Jon
+
+### Sean
+
+### Elena
+
