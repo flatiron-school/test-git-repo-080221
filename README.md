@@ -19,6 +19,8 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Lindsey
 
+![monday cat gif from giphy](https://media.giphy.com/media/13sz48R33vovLi/giphy.gif)
+
 ### Dan
 
 ![crying jordan is crying a lot](https://media.giphy.com/media/OBhDa8A9ZBIUU/giphy.gif)
