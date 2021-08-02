@@ -22,6 +22,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Dan
 
 ### Jon
+![merging meme](https://media.giphy.com/media/cFkiFMDg3iFoI/giphy.gif)
 
 ### Sean
 
