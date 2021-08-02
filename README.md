@@ -26,6 +26,6 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Jon
 
 ### Sean
-
+![Crazy Brock Lesnar](https://media0.giphy.com/media/3o6vXPqTWMZiGc2GVq/giphy.gif?cid=790b76113e31d13b270e71d7702c4be0734c433dba495b6c&rid=giphy.gif)
 ### Elena
 
