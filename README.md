@@ -21,6 +21,8 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Dan
 
+![crying jordan is crying a lot](https://media.giphy.com/media/OBhDa8A9ZBIUU/giphy.gif)
+
 ### Jon
 
 ### Sean
